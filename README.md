@@ -2,4 +2,4 @@
 actividades grupales 
 
 
-Equipo conformado por Mayra Garcia Landa  Nahun Morales Jimenez  Marisol Hernandez Alarcon 
+Equipo conformado por Mayra Garcia Landa  , Nahun Morales Jimenez  , Marisol Hernandez Alarcon 
